@@ -1,0 +1,19 @@
+# Schizophrenia_MIND-DUMP--With-_-Science
+
+
+
+read.me
+
+WARNING TRIGGER WARNING 21+ 21 21+ 21+
+
+Ages only.
+
+PROHIBODO, PROHIBITED NOT ALLOWED FOR MINORS
+
+------------------------------------------------
+
+
+THIS IS A TRIGGER WARNING FOR SCHIZOPHRENIA RAMBLINGS!
+
+
+OFTEN THEY INVOLVE SCIENCE. SEE BOOK OR AUDIO BOOK
