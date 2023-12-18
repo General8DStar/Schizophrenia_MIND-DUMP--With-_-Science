@@ -1,0 +1,1 @@
++PING should soon include GPS - and it's encoded with trace at JUMP points and ENCRYPTED
