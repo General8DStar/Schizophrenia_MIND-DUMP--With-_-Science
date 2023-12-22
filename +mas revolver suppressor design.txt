@@ -1,0 +1,8 @@
++mas revolver suppressor design
+
+- front end has type 64 suppressor with exoskeleton design EXOD.
+
+
+EXOD. has neodynmamic magnets with two flaps that are chamber and seal caskets metal or 3d printed so it incases the escaping gas that is inevitable.
+
+Plus SCREw or SINGLE CLAMP vise to unlock/relase or clamp more
