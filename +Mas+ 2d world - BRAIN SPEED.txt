@@ -1,0 +1,3 @@
++Mas+ 2d world - BRAIN SPEED
+
+BRAIN SPEED PROTOCOLS depends on action and environment and situation
